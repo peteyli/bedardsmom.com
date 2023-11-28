@@ -1,4 +1,3 @@
-# bedardsmom.com
-Has got it going on... soon.
+> I made your mom so wet, Trudeau had to deploy a 24-hour national guard unit to stack sandbags around my bed.
 
-Image removed due to copyright claim. Stay tune while we get this sorted...
+![This Guy Fucks](https://raw.githubusercontent.com/peteyli/bedardsmom.com/main/bedardsmom.com-placeholder.jpg)
