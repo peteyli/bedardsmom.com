@@ -1,6 +1,4 @@
 # bedardsmom.com
 Has got it going on... soon.
 
-While you wait, enjoy:
-
-![Enjoy While You Wait](https://raw.githubusercontent.com/peteyli/bedardsmom.com/main/bedardsmom-placeholder.png)
+Image removed due to copyright claim. Stay tune while we get this sorted...
